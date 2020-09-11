@@ -1,2 +1,2 @@
 # readme-edits
-Jos
+Gua mah ganteng ,insya allah pinter 😂😂😂
